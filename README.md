@@ -1,1 +1,2 @@
-# hello-world.-
+# hello-world.
+My name is Lexington Carson, I am a 23 and was burned and raised in New York. I graduated with my undergraduate from Walsh University in Design and Marketing. After working in that space, I realized that I enjoy product design and development. Specifically within homeware or beauty. Other fun facts about me is that I have played lacrosse for 14 years of my life. I was fortunate enough to play at the DII level, which brought me great memories and amazing friends. On top of this, I enjoy traveling and have relocated overseas to New Zealand to push myself out of my comfort zone and explore new experiences. 
